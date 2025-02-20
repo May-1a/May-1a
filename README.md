@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil : anatomical_heart
+### Boas vindas ao meu perfil : 
 
 Meu nome é Maysa Vitoria
 tenho 15 anos
